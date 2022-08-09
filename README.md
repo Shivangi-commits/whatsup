@@ -1,8 +1,10 @@
 # whatsup
 bhfg bfkwgu bg 
 bndbfkj bv
-fgtvnkg
+
 bjkguregr 
 urtyhf
- hhoer bhugre rhgure kjghitrh ghi
+ hhoer bhugre rhgure kjghitrh ghi I an the one
+ 
+ close up
  
